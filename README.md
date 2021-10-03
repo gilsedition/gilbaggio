@@ -1,2 +1,1 @@
-# gilbaggio
-Personal Profile
+# Hey, I am Gil 👋
